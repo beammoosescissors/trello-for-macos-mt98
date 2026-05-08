@@ -1,4 +1,4 @@
-
+Trello for macOS ultimate Macro - widgets and quick search offers the most advanced Trello for macOS macro, with widgets and quick search. Ideal for professionals.
 
 
 
